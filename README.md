@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @vanessa2120
+- 👀 I’m bi but I prefer girls
+- 🌱 I’m a newbie
+- 😄 Pronouns: She/her
+- ⚡ Fun fact: I'm intersex
